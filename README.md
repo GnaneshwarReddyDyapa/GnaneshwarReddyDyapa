@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GnaneshwarReddyDyapa
 - 👀 I’m interested in Helping People With Basic Help.
 - 🌱 I’m currently studying 12th standard
-- 💞️ I’m looking learn and help others
+- 💞️ I’m looking to learn and help others
 - 📫 How to reach me dyapa.gnaneshwarreddy@gmail.com
 
 <!---
